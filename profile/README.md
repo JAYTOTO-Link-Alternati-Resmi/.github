@@ -1,4 +1,5 @@
-[![JAYTOTO](https://communityresponsekirklees.com/assets/images/daftar-pub189.gif)](https://vipjaytoto.xyz)
+[DAFTAR DISINI](https://vipjaytoto.xyz)
+[LOGIN DISINI](https://vipjaytoto.xyz)
 
 Cara Mengakses Link Login Terbaru Jaytoto
 
